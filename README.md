@@ -27,7 +27,7 @@ I am currently learning how to develop mods for video games such as Minecraft, b
 
 Improving my skills in Java, C, C++, Python.
 ## Other simple facts
-I am a second generation male with my parents both coming from Poland.
+I am a second generation male with both of my parents coming from Poland.
 
 I enjoy photography, reading, working out, and riding my motorcycle (when its warm) in my free time.
 
