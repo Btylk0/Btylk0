@@ -29,7 +29,7 @@ I am currently learning how to develop mods for video games such as Minecraft, b
 ## Other simple facts
 I am a second generation male with my parents both coming from Poland.
 
-I enjoy photography, reading, and working out in my free time.
+I enjoy photography, reading, working out, and riding my motorcycle (when its warm) in my free time.
 
 ## Find me elsewhere
 benjamintbusiness@gmail.com
