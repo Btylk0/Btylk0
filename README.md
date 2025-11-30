@@ -24,6 +24,7 @@ I am currently seeking opportunities for internships near Chicago, IL, but I am 
 
 ## Current focuses
 I am currently learning how to develop mods for video games such as Minecraft, but I am interested in making mods for Terraria and other simple game as well down the line.
+
 I have been trying Lua a little bit in Roblox, and I've been making silly little games with it!
 
 Improving my skills in Java, C, C++, Python.
