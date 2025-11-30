@@ -35,5 +35,6 @@ I enjoy photography, reading, working out, and riding my motorcycle (when its wa
 benjamintbusiness@gmail.com
 
 Actively trying to broaden my social presence!
+LinkedIn: https://www.linkedin.com/in/benjamin-tylka/
 
 
